@@ -1,1 +1,1 @@
-![deepcodec-slogan](https://github.com/deepcodec/.github/assets/7447401/c9ec2160-e160-4568-86e8-31d67c2f6c9a)
+![deepcodec-slogan](https://github.com/deepcodec/.github/assets/7447401/d020c2a4-6f41-4c6c-9cc1-a3e2f44ded66)
